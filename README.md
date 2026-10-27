@@ -1,0 +1,1 @@
+# kamikaze621.github.io
